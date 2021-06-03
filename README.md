@@ -1,5 +1,10 @@
 ### Hi there 👋
 
+I hate talking about myself.
+
+I'll fill this in RSN.
+😸
+
 <!--
 **genedelisa/genedelisa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
